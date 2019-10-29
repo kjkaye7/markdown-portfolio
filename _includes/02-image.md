@@ -1,1 +1,1 @@
-![Which one do I choose?](https://imgflip.com/i/3epa7l)
+![Which one do I choose?](https://i.imgflip.com/3epa7l.jpg)

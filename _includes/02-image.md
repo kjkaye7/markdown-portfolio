@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Which one do I choose?](https://imgflip.com/i/3epa7l)
